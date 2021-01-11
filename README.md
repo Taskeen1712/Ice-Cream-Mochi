@@ -1,0 +1,1 @@
+Mochi ice cream is a small, round confection consisting of a soft, pounded sticky rice dumpling (mochi) formed around an ice cream filling. The ice cream flavors the confection while the mochi adds sweetness and texture. The traditional ice cream flavors used are vanilla, chocolate and strawberry.
